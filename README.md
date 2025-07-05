@@ -1,6 +1,6 @@
 # 🎮 Sobre mim
 
-🎙️ Sou um comunicador movido por paixão — especialmente quando o assunto é **FiveM**.  
+🎙️ Sou um comunicador movido por paixão, especialmente quando o assunto é **FiveM**.  
 Hoje encaro tudo isso como hobby, mas com o mesmo comprometimento de sempre. Minha missão é simples:  
 ✨ **entregar experiências divertidas, leves e marcantes** dentro de uma comunidade intensa, caótica às vezes, mas que a gente ama fazer parte.
 
