@@ -1,13 +1,16 @@
 # 🎮 Sobre mim
 
-Sou um comunicador apaixonado pelo FiveM. Hoje levo isso como hobby, mas com o mesmo carinho de sempre. Minha missão é simples: trazer algo realmente divertido e leve pra essa comunidade intensa, às vezes complicada, mas que a gente ama fazer parte.
+🎙️ Sou um comunicador movido por paixão — especialmente quando o assunto é **FiveM**.  
+Hoje encaro tudo isso como hobby, mas com o mesmo comprometimento de sempre. Minha missão é simples:  
+✨ **entregar experiências divertidas, leves e marcantes** dentro de uma comunidade intensa, caótica às vezes, mas que a gente ama fazer parte.
 
-Atuo no cenário do FiveM há bastante tempo, passando por cidades grandes e pequenas, sempre com o objetivo de entender a real necessidade de cada projeto.
+🚀 Com uma trajetória sólida no FiveM, já atuei em cidades de todos os portes, das gigantes às mais discretas, sempre buscando entender a essência de cada projeto e contribuir com o que há de melhor em comunicação e estratégia.
 
-Atualmente, faço parte da equipe da CORE, onde cuido das parcerias e da divulgação da nossa loja.
-Me dedico todos os dias para que mais pessoas conheçam nosso trabalho e enxerguem o nosso diferencial:
-🚀 um suporte real, feito por quem vive o RP na prática.
+🔧 Atualmente, integro a equipe da **CORE**, onde sou responsável pelas **parcerias** e pela **divulgação da loja**.  
+Nosso foco? Um suporte real, ágil e feito por quem vive o RP na prática.  
+💡 Num mercado tão competitivo, acreditamos que o **atendimento é o que realmente diferencia uma boa entrega de uma entrega inesquecível**, e é isso que a gente oferece todos os dias.
 
-🧠 Em um mercado tão amplo como o do FiveM, acreditamos que o atendimento faz toda a diferença, e é nisso que a gente se destaca.
+🌐 Além disso, também administro o servidor **Distrito**, que está passando por uma reformulação completa.  
+Muito em breve, voltaremos ao mapa com uma identidade única, mais sólida e preparada pra oferecer uma nova era de roleplay de verdade.
 
-Além disso, também administro o servidor Distrito, que está passando por uma reformulação completa e, em breve, estará de volta com uma nova proposta: mais sólida, mais criativa e com identidade própria.🛠️🌐
+📩 Sempre aberto a conexões, colaborações e ideias novas. Vamos conversar?
