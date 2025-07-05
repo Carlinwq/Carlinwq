@@ -6,6 +6,6 @@ Atualmente, faço parte da equipe da **CORE**, onde cuido das parcerias e da div
 Me dedico todos os dias para que mais pessoas conheçam nosso trabalho e enxerguem o nosso diferencial:  
 🚀 **Um suporte real, feito por quem vive o RP na prática.**
 
-🧠 Em um mercado tão amplo como o do FiveM, acreditamos que o **atendimento faz toda a diferença** — e é nisso que a gente se destaca.
+🧠 Em um mercado tão amplo como o do FiveM, acreditamos que o **atendimento faz toda a diferença**, e é nisso que a gente se destaca.
 
 Além disso, também sou responsável pela administração do servidor **Distrito**, que está passando por uma reformulação completa e, em breve, estará de volta com uma nova proposta, mais sólida e com identidade própria. 🛠️🌐
